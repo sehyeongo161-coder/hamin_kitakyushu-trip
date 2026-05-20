@@ -1,1 +1,0 @@
-# hamin_kitakyushu-trip
